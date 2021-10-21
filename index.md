@@ -6,7 +6,7 @@
   有天晚上，我吃了**七两**米饭
 
 # 好伙伴们
-  [Dongyu Yan](http://starydy.xyz/about/)
+  [Dongyu Yan](http://starydy.xyz/about/) \n
   [三次元驰酱](https://delayzzz.github.io/about/)
 
 
