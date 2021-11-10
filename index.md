@@ -1,6 +1,5 @@
 # Welcome to bigbird.fun
 
-### There is nothing now.
 
 ## 我吃饭贼多
   有天晚上，我吃了**七两**米饭
